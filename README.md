@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Sussy
-- 👀 I’m interested in Rats
+- 👋 Hi, I’m joe
+- 👀 I’m interested in seggz
 - 🌱 I’m currently learning in your walls
 - 💞️ I’m looking to collaborate the strength of your inner walls
 - 📫 How to reach me. Tear down a wall in your house
